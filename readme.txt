@@ -1,2 +1,2 @@
 Hi there!
-My another suck test, sry about dat :C
+My another sick test, sry about dat :C
